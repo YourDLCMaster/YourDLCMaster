@@ -1,5 +1,5 @@
 # Melodyne
-Hi! I'm Melodyne, also known as YourDLCMaster (all of my names are on my [pronouns.page](https://en.pronouns.page/@YourDLCMaster)).\
+Hi! I'm Melodyne, I also go by Mel or YourDLCMaster (all of my preferred names are on my [pronouns.page](https://en.pronouns.page/@YourDLCMaster)).\
 I love:
 - Computers, programming and tinkering
 - Gaming
