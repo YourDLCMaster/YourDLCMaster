@@ -9,4 +9,4 @@ I love:
 - 3D animation
 - Art
 
-More info is available on my [carrd.co](https://yourdlcmaster.carrd.co)!
+More info is available on my [carrd.co](https://melodynes.carrd.co)!
